@@ -13,3 +13,5 @@ After that culinary disaster, our hero decides he’s had enough of this "authen
 Back at the airport, he’s sunburned, broke, and still smelling faintly of shrimp paste. "Never again," he mutters, boarding the plane.
 ### Post-Chapter 3:
 But nah, life ain’t done kicking him in the balls yet. First, he opens his luggage and realizes that the shrimp paste smell has infected everything he owns. His clothes, his toothbrush, even his fucking laptop smells like rotting fish guts. Congrats, dumbass. You brought the stench of Vietnam home with you.
+
+Source:[The Bizzard adventure of American man](https://www.youtube.com/watch?v=5ru0H66vVHo)
